@@ -1,4 +1,4 @@
-###Oláaa....❤
+BOAS VINDAS AO MEU PERFIL💕🤳
 
 Meu nome é:Janito Garcia Da Silva
 
@@ -8,7 +8,7 @@ Meu nome é:Janito Garcia Da Silva
 
 -Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos.
 
-###Você entrar em contato comigo😃
+VOCÊ ENTRAR CONTATO COMIGO 🎈👓
 
 janitogarciasilva@gmail.com
 
