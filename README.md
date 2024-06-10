@@ -10,7 +10,7 @@ Meu nome é:Janito Garcia Da Silva
 
 VOCÊ ENTRAR CONTATO COMIGO 🎈👓
 
-janitogarciasilva@gmail.com
+janitogarciasilva41@gmail.com
 
 @janitogarciasilva
 
